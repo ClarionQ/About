@@ -1,2 +1,2 @@
 # About
-Clarion Q-Digital: About our organisation
+Clarion Q-Digital
