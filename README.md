@@ -1,4 +1,4 @@
 # About
 ClarionQ
 
-Digital and analog solutions for the omnniversail present. Life is real.
+Digital and analog solutions for the omniversail present. Life is real.
